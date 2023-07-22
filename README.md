@@ -7,3 +7,5 @@ video
 Langueges and tools
 
 folou me
+
+курс трейдинга финам
